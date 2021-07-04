@@ -1,0 +1,1 @@
+Estou adorando o curso. Aprendi muito, mas ainda preciso praticar mais. Estou um pouco tensa com a prova, mas sei que com ela irei avaliar melhor o quanto consegui de fato aprender.
